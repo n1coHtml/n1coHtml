@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @n1coHtml
-- 👀 I’m interested in Designe, 3D Creation, Game Developement...
+- 👀 I’m interested in Design, 3D Creation, Game Developement...
 - 🌱 I’m currently learning Unreal Engine 5
 - 💞️ I’m looking to collaborate on Art
 - 📫 How to reach me artnation.worldcontact@gmail.com
